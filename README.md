@@ -1,6 +1,7 @@
 # Baka-to-Test-to-Shoukanjyuu
 
 // To see the page
+
 Link: https://naufalandriantonugraha.github.io/baka-to-test-to-shoukanjyuu/
 
 // Warning
