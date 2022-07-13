@@ -1,5 +1,7 @@
 # Baka-to-Test-to-Shoukanjyuu
 
+Link to the page: https://naufalandriantonugraha.github.io/baka-to-test-to-shoukanjyuu/
+
 All the image that I use are not mine, I just take it from the website. link to the website in below:
 
 Image taken from: https://www.tv-tokyo.co.jp/anime/bakatest2/story/index.html
