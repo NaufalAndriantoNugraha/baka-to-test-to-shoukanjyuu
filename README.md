@@ -7,7 +7,7 @@ Link: https://naufalandriantonugraha.github.io/baka-to-test-to-shoukanjyuu/
 // Warning
 
 All the images and character descriptions used are not mine.
-I only took from various websites, the link to the website is below:
+I only took from various websites, link to the website is below:
 
 Images taken from: https://www.tv-tokyo.co.jp/anime/bakatest2/story/index.html
 
